@@ -1,0 +1,2 @@
+# Janpu-Ninja
+tugas grafkom 
